@@ -1,6 +1,6 @@
 ### Hello Everyone!👋
 My name is **Dhiya**.
-Let's have mutual connection on LinkedIn [Linkedin](https://www.linkedin.com/in/dhiyaannisafebriza/). ^^
+Let's have mutual connection on [Linkedin](https://www.linkedin.com/in/dhiyaannisafebriza/). ^^
 
 <!--
 **Annisadhiya/Annisadhiya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
